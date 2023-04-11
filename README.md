@@ -13,6 +13,8 @@
 [![Whatsapp](https://img.shields.io/badge/WhatsApp-25D366?style=for-the-badge&logo=whatsapp&logoColor=white)](https://wa.me/+5511980326635)
 [![DISCORD](https://img.shields.io/badge/Discord-7289DA?style=for-the-badge&logo=discord&logoColor=white)](https://discord.com/channels/@me)
 
+
+
 <div align="center">
   
 <img height="150em" src="https://github-readme-stats.vercel.app/api?username=TaniaAndrade1984&count_private=true&theme=dracula"/>
