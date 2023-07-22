@@ -2,7 +2,7 @@
 
 ❤️Apaixonada por Tecnologia❤️
 
-👩‍🎓Formada pela Generation By Zé Delivery
+👩‍🎓Formada pela Generation By Zé Delivery👩‍🎓
 
 😎Adoro Sol, Praia, Aventuras, Músicas, estar com a Família e Amigos😎
 
